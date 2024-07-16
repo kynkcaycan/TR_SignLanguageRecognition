@@ -1,1 +1,2 @@
-[<img src="https://i.ytimg.com/vi/Hc79sDi3f0U/maxresdefault.jpg" width="50%">]([https://www.youtube.com/watch?v=Hc79sDi3f0U](https://drive.google.com/file/d/1ZVsd-45cmaZOfhnk118QIr7Bjfv-GqN4/view) "Now in Android: 55")
+Proje Sunum Video Link: https://drive.google.com/file/d/1ZVsd-45cmaZOfhnk118QIr7Bjfv-GqN4/view
+Proje Sahipleri: Aylin Aygül, Aycan Kaynakcı
